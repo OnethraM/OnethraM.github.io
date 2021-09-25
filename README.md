@@ -10,7 +10,7 @@
 * Email: onethramqndawala@gmail.com/ hs21918124@my.sliit.lk
 
 # **SKILLS**
-* My skills range from soft skills such as knowledge on languages and ability to work well in group projects to achieving work without procastinating.*
+*My skills range from soft skills such as knowledge on languages and ability to work well in group projects to achieving work without procastinating.*
 * powerpoint,word and excel 90%
 * ability to work in groups 75%
 * listener 80%
