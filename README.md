@@ -29,7 +29,7 @@
 * Exercising and healthcare 🚴‍♀️
 * Travel 🚋
 * Topical blogs and research (cancer,marine, space) 🌟
-### **link to downloadable resume: [file:///C:/Users/oneth/OneDrive/Documents/ICT%20ASSIGMENTS/HS21918124_ONETHRA%20MANDAWALA.pdf](file:///C:/Users/oneth/OneDrive/Documents/ICT%20ASSIGMENTS/HS21918124_ONETHRA%20MANDAWALA.pdf)
+### link to downloadable resume: [file:///C:/Users/oneth/OneDrive/Documents/ICT%20ASSIGMENTS/HS21918124_ONETHRA%20MANDAWALA.pdf](file:///C:/Users/oneth/OneDrive/Documents/ICT%20ASSIGMENTS/HS21918124_ONETHRA%20MANDAWALA.pdf)
 
 
 
