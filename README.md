@@ -16,5 +16,18 @@
 * listener 80%
 * davinci code 90%
 * Photoshop 55%
+# **EDUCATIONAL QUALIFICATIONS**
+* G.C.E O/L 2017 at Vidura College- Obtained 9A passes
+* G.C.E A/L 2020 at Lyceum International School - B pass for chemistry and C passes for physics and biology
+* BSc (Hons) undergraduate in biotechnology at SLIIT (2021-2025)
+# **PROJECTS**
+* Rotaverse Rotaract: as a newbie in sliit rotarct, a project was conducted to make us aware of how rotarct functions.
+* participated in a debate: acted the role of the opposing team leader in the in class online debate.
+* video development: produced a video regarading the vaccines availble against COVID 19
+# **Hobbies**
+* Cooking and baking 🍰
+* Exercising and healthcare 🚴‍♀️
+* Travel 🚋
+* Topical blogs and research (cancer,marine, space) 🌟
 
 
