@@ -1,5 +1,5 @@
 # Onethra Mandawala
-![alt text] 
+![image_6487327](https://user-images.githubusercontent.com/91050789/135574413-77c57c00-e091-4c5d-a376-e1e5f5a8be9e.jpg)
 ## BSc (hons) Biotechnology
 # **ABOUT**
 *20 years of age, conscientious and hard working BSc(hons) Biotechnology undergraduate 👩‍🎓. A very practical person with amiable dispostion and strong cultural values. I strongle believe in accuracy and precision in whatever i do. I am currently seeking an internship at a labrotory where I can polish my skills and gather experiance for my future.*
