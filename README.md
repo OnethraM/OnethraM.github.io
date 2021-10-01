@@ -25,11 +25,11 @@
 
 ## **PROJECTS**
 * **Rotaverse Rotaract**: as a newbie in sliit rotarct, a project was conducted to make us aware of how rotarct functions.
-**   participated in scavenger hunts, designing logos and creating videos for the ongoing pandemaic situation
+      participated in scavenger hunts, designing logos and creating videos for the ongoing pandemaic situation
 * **participated in a debate**: acted the role of the opposing team leader in the in class online debate.
 * **video development**: produced a video regarading the vaccines availble against COVID 19
 
-# **Hobbies**
+## **Hobbies**
 * Cooking and baking 🍰
 * Exercising and healthcare 🚴‍♀️
 * Travel 🚋
